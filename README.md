@@ -1,0 +1,1 @@
+# czechserverlist.github.io
